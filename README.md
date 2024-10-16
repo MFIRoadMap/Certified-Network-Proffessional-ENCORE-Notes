@@ -1,1 +1,1 @@
-# Certified-Network-Proffessional-ENCORE-Notes
+# Certified Network Proffessional ENCORE Notes
